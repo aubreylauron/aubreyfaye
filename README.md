@@ -1,2 +1,0 @@
-# aubreyfaye
-aubreyfaye.io
